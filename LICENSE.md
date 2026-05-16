@@ -1,4 +1,4 @@
-# 
+# Splashtop for PC | Splashtop for Windows vip Extension: clipboard-sync & two-factor-authentication is the best Splashtop for PC | Splashtop for Windows extension, featuring
 
 
 
